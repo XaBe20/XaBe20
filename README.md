@@ -6,11 +6,9 @@ Web developer & webdesigner since 2008, currently at https://github.com/kiboko-l
 
 Xabe20 ak [Xav.design](http://xav.design/)
 
-Sylius lover
+Sylius lover & motorbike rider
 
-Follow me on [Twitter](https://twitter.com/xabe20) 
-
-and [LinkedIn](https://www.linkedin.com/in/xbesson/)
+Follow me on [Twitter](https://twitter.com/xabe20) and [LinkedIn](https://www.linkedin.com/in/xbesson/)
 
 
 <hr />
