@@ -2,7 +2,7 @@
 
 ## Xavier Besson @XaBe20
 
-Web developer & webdesigner since 2008, currently at https://github.com/kiboko-labs/
+Web developer & webdesigner since 2008
 
 Xabe20 ak [Xav.design](http://xav.design/)
 
